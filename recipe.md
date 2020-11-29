@@ -15,3 +15,4 @@
 Make all skewers similarly. Meanwhile pre-heat oven to 450 F degrees. Make sure you pre-heat the oven for good 15-20 minutes.
 
 8- Arrange all the prepared skewers on a baking sheet lined with parchment paper. Spray the tikka with a oil spray. This is important so that the veggies don’t dry out.
+-*-*-*-
